@@ -1,0 +1,1 @@
+# VovSoft-OCR-Reader-3.2-Crack
